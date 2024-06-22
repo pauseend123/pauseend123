@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pauseend123
- -👀 interested in Kiteboarding, renewable energy, conservation, medical etc.
+ -👀 interested in renewable energy, conservation, medical etc.
  -🌱 currently learning AI Studio, Gemini and incorporating new features into builds.
  -💞️ looking to collaborate on projects to build my portfolio. Wide range of interests including Kiteboarding, renewable energy, conservation, medical etc.
  -📫 How to reach me advantageinnovationstoronto@gmail.com
